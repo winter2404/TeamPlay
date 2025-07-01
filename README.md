@@ -5,3 +5,4 @@
 - Cayabyab, Michael Angelo P.
 - Regudo, Jaeno Cris
 - Sarah Nicole P. Mendoza
+- John Enrique M. Sanchez
