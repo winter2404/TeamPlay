@@ -6,3 +6,4 @@
 - Regudo, Jaeno Cris
 - Sarah Nicole P. Mendoza
 - John Enrique M. Sanchez
+- Dimafelix ,Dane Joshia B.
